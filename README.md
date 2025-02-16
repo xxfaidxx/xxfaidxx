@@ -1,9 +1,8 @@
 ## Hi there 👋
 
-Third-year student that eager for a new experiences and growth opportunities in Informatics and technology. I thrive on learning and embrace challenges with enthusiasm and seeking to expand my skillset and contribute meaningfully.
+I'm a Third-year student that eager for a new experiences and growth opportunities in Informatics and technology. I thrive on learning and embrace challenges with enthusiasm and seeking to expand my skillset and contribute meaningfully.
 
-Let's connect to explore potential collaborations and opportunities for mutual growth and improvement. I am very excited to make a positive impact and embark on this journey!
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/faidw/)ku ya.  
+Let's connect to my [Linkedin](https://www.linkedin.com/in/faidw/).  
 
 <!-- GitHub Statistic -->
 <p align="left">
